@@ -1,1 +1,1 @@
-# Zenless-Zone-Zero-BOT-
+# Zenless-Zone-Zero-
